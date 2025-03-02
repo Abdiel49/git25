@@ -17,3 +17,6 @@ Torvin y sus compañeros se unen a las fuerzas de la alianza, listos para enfren
 
 - Los pueblos libres se preparan para la guerra. Los elfos forjan armas mágicas, los enanos construyen fortalezas inexpugnables, los hombres entrenan a sus guerreros y los ents despiertan de su letargo.
 Torvin y sus compañeros se unen a las fuerzas de la alianza, listos para enfrentar al Señor de las Sombras y su ejército. La batalla final se acerca.
+
+- Los pueblos libres se preparan para la guerra. Los elfos forjan armas mágicas, los enanos construyen fortalezas inexpugnables, los hombres entrenan a sus guerreros y los ents despiertan de su letargo.
+Torvin y sus compañeros se unen a las fuerzas de la alianza, listos para enfrentar al Señor de las Sombras y su ejército. La batalla final se acerca.
