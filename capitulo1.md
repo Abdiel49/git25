@@ -1,0 +1,1 @@
+- Los animales del pueblo se comportan de manera extraña, y una niebla espesa cubre el valle. Un anciano sabio, Elara, advierte sobre un mal que se despierta. Torvin, temeroso, decide abandonar el collar, pero este se aferra a él.
